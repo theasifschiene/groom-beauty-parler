@@ -1,2 +1,2 @@
 # groom-beauty-parler
-about groom beauty parler shop puthiyodath paramb
+about groom beauty parler shop puthiyodath parmb
